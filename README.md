@@ -12,4 +12,4 @@ Meu nome é Marcelo Paludetto
 
 @Dudiinhah1
 
-![descrição do GIF](link GIF do Tenor)
+https://media1.tenor.com/m/opEBWw0uddoAAAAC/umm.gif
